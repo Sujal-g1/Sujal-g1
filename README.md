@@ -2,7 +2,7 @@
 - 👀 I’m interested in tech
 - 🌱 I’m currently learning web dev and AI
 - 💞️ I’m looking to collaborate on the projects for which the companies will hire me😛
-- 📫 How to reach me ,it's not a big task , To make it small here is my mail-id, sujal.work2005@gmail.com
+- 📫 How to reach me ,it's not a big task , To make it smaller here is my mail-id, sujal.work2005@gmail.com
 - 😄 Pronouns: i really dont know,but i am a MALE.
 - ⚡ Fun fact: i am still searching what's the fun fact about me😂
 
