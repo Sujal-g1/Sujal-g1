@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Sujal-g1
+- 👋 Hi, I’m Sujal Garg
 - 👀 I’m interested in tech
-- 🌱 I’m currently learning web dev and AI
+- 🌱 I’m currently learning WebDev ,AI and Cyber Security.
 - 💞️ I’m looking to collaborate on the projects for which the companies will hire me😛
 - 📫 How to reach me ,it's not a big task , To make it smaller here is my mail-id, sujal.work2005@gmail.com
 - 😄 Pronouns: i really dont know,but i am a MALE.
